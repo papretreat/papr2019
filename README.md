@@ -48,7 +48,7 @@ Don't forget to bring your sportwear if you want to enjoy these activities!
 
 ## Accommodations and meals
 
-The UCLA conference center fully [accommodates](http://lakearrowheadconferencecenter.ucla.edu/accommodations/) and [caters](http://lakearrowheadconferencecenter.ucla.edu/dining/) for us. The 'condolets' at the conference center accommodate two people, and offer a queen size bed with bath downstairs and a second queen size bed with bath upstairs. A living room area with wood-burning fireplace is shared by two conferees. All condolets have large decks with potential lake or forest views.
+The UCLA conference center fully [accommodates](http://lakearrowheadconferencecenter.ucla.edu/stay-at-ucla-lake-arrowhead-conference-center/) and [caters](http://lakearrowheadconferencecenter.ucla.edu/dining/) for us. The 'condolets' at the conference center accommodate two people, and offer a queen size bed with bath downstairs and a second queen size bed with bath upstairs. A living room area with wood-burning fireplace is shared by two conferees. All condolets have large decks with potential lake or forest views.
 
 Attendees share their room with another attendee. 
 Please this [Spreadsheet](https://docs.google.com/spreadsheets/d/1d5grzYo76jLK4t76VM5wbl9XyPsMx03dwn5YkGQGnqk/edit?usp=drive_web&ouid=106650781263756717976) to organize roommate preferences.
