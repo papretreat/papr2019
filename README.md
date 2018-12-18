@@ -53,4 +53,4 @@ For the other institutions, there was unfortunately no funding available for thi
 
 You can register [HERE](https://docs.google.com/forms/d/1b-TXC0h-4IIt-nCYeLHafxPaUaE96pouo6bDdY44AUE/viewform).
 
-Once this is done, please use this [Spreadsheet](https://docs.google.com/spreadsheets/d/1io8sjX9Ml9ONeT7DLxd-KYh3D46dHtGQCnAMLuKJAoI/edit#gid=0) to organize for your carpooling and roommate, and tell us all about your dietary requests.
+Once this is done, please use this [Spreadsheet](https://docs.google.com/spreadsheets/d/1io8sjX9Ml9ONeT7DLxd-KYh3D46dHtGQCnAMLuKJAoI/edit?usp=sharing) to organize for your carpooling and roommate, and tell us all about your dietary requests.
