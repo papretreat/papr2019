@@ -4,6 +4,7 @@
 ## Pre-retreat hike
 
 Similar to the past two years, we are considering an optional pre-retreat hike in the morning before the retreat. The [Sawmill Road Loop Trail](https://www.alltrails.com/explore/trail/us/california/sawmill-road-loop-trail) is only 3 miles long, features wonderful views, and is just a 5-minute drive from the conference center. 
+We will keep you posted on the organization for this hike.
 
 # What is PAPR?
 
@@ -53,4 +54,7 @@ For the other institutions, there was unfortunately no funding available for thi
 
 You can register [HERE](https://docs.google.com/forms/d/1b-TXC0h-4IIt-nCYeLHafxPaUaE96pouo6bDdY44AUE/viewform).
 
-Once this is done, please use this [Spreadsheet](https://docs.google.com/spreadsheets/d/1io8sjX9Ml9ONeT7DLxd-KYh3D46dHtGQCnAMLuKJAoI/edit?usp=sharing) to organize for your carpooling and roommate, and tell us all about your dietary requests.
+We will get back to you once this is done and provide a spreadsheet for you to organize for your carpooling and roommate, and tell us all about your dietary requests.
+
+
+Looking forward to see you there!
