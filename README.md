@@ -20,6 +20,11 @@ This year's retreat will be held on May 1st-3rd 2019. The program included a mix
 - Sebastian Kiehlmann (Caltech)
 - Abhishek Prakash (IPAC/Caltech)
 
+# The Speakers
+
+- Vanessa Bailey: Vanessa is a Scientist at the Jet Propulsion Laboratory, and as such, she will tell us all about JPL jobs. She will also speak about diversity and inclusion.
+- Jessie Christiansen: Jessie is a Staff Scientist at IPAC-Caltech. She is particularly famous for her involvment in outreach activities, and will tell us about the many opportunities in this domain.
+- Calen Henderson: Calen is a Staff Scientist at IPAC-Caltech and will tell us all about Caltech jobs with the fun, energy, and good mood he is reknowned for.
 
 # The Venue
 
