@@ -52,7 +52,7 @@ The conference center caters for all meals, which are covered in the cost of the
 
 # Registration
 
-The registration fee is $560 per person.
+The registration fee is $575 per person.
 Carnegie funded 100% of the cost of the retreat for its postdocs. 
 Caltech astronomy funded 50% of the cost of the retreat for its postdocs. The rest of the funding have to come from the postdoc's travel funds.
 For the other institutions, there was unfortunately no funding available for this year's retreat, and thus 100% had to come from the personal travel fund.
